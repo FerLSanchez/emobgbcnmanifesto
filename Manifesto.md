@@ -1,0 +1,13 @@
+- Our smallest value adding unit is the team. No individuallity can override this.
+- We, as a team, support each other and try to help the rest to get the most of them.
+- We enter the hub with our emotions and feelings. We leave our ego at the door.
+- We celebrate our success stories openly and globaly.
+- We all accept failure as a natural thing. The sooner, the better, without blaming who had courage enough to try.
+- All contribution is the best contribution our people can make, from opening the door to a visit to create very complex code, and we are grateful for this to everyone.
+- We all have problems and obstacles and we share them with our peers in order to find solutions.
+- Anyone can talk openly with any other, no matter hierarchies, titles or other labels.
+- Nothing is a secret inside the hub and can be shared openly (unless common sense topics under legal or compliance agreements).
+- Any decision is the best decision until a best one is found.
+- Our only customer is the one in the need of mobility, looking at a screen in search for it or behind a wheel.
+- We are here to deliver value to our customer and delight her.
+- When in doubt, the right choice is the one that gives the most benefit to our customer.
